@@ -10,6 +10,8 @@ To put the whole persecution under one roof, the best summary is perhaps this:
 
 # An experiment on making humans accept being treated as animals—and be grateful for it—while respecting the persecutors.
 
+What was originally committed by one notorious regime is now joined by many.
+
 ---
 **Partial account of the on-going persecution**
 
