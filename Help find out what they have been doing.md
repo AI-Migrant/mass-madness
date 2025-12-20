@@ -1,4 +1,12 @@
+An attempt to make summaries over ranges of matters: https://github.com/AI-Migrant/mass-madness
+
+The entries I wrote over the years of persecution: https://github.com/AI-Migrant/asylum_diary
+
 I am currently an asylum seeker in the UK. But the situation has led me to believe that the authorities of the UK, like the authorities of Lithuania, are working with the Chinese Communist Party (CCP).
+
+I have explicitly told Lithuania and the UK that I felt tortured and asked them to stop their violations. It’s useless, till this day I am still suffering an array of sick behaviours, including but not limited to stalking, network control, drugging, molestation, and denied information, the right to meet a solicitor when arbitrarily arrested, and access to things, including public transport, without interference. For smaller matters, even what I eat is interfered with. I said I feel treated as a non-human. I mean it.
+
+---
 
 I am not asking for direct help, but I hope that you can find out what happened since I applied for asylum in Lithuania or attempted to volunteer for Ukraine in Poland. I am not able to do that myself. Maybe one day, what you find out will be meaningful.
 
@@ -8,17 +16,19 @@ A life that doesn’t even remotely resemble a normal one, let alone doing anyth
 
 My situation is generally unsafe. They would and had pushed it to life-threatening danger to invalidate it, despite I had said that’s not the kind of safety I was talking about.
 
-Physical safety, I had been assaulted, and I absolutely cannot get help from the authorities. In fact, the authorities arrested me after one of the assaults to protect the perpetrators.
+Physical safety. I had been assaulted, and I absolutely cannot get help from the authorities. In fact, the authorities arrested me after one of the assaults to protect the perpetrators.
 
-Digital safety, I have been under extreme surveillance that monitors me both physically and digitally, including my sleeping area and bathroom. My network is controlled. Both my physical and digital mail can be intercepted.
+Digital safety. I have been under extreme surveillance that monitors me both physically and digitally, including my sleeping area and bathroom. My network is controlled. Both my physical and digital mail can be intercepted.
 
-Property safety, I have long been aware that I can’t really do anything or own anything safely, both physical and digital. The latest theft that stole almost everything from me is proof. The incident about the bicycle I bought for commuting was another. It also showed that they didn’t care what serious consequences they could have caused when I was the one to suffer them.
+Property safety. I have long been aware that I can’t really do anything or own anything safely, neither physically nor digitally. The latest theft, which stole almost everything from me, is proof. The incident about the bicycle I bought for commuting was another. It also showed that they don’t care about what problems will be caused when it’s me who will suffer.
 
 ---
 
-Initially, the CCP believed that humans were to be manipulated, and believed that the asylum process was the perfect opportunity. Lithuania, given what happened, I can only arrive at this conclusion: agreed and helped.
+Here is some of what has happened from what I can see:
 
-The UK most likely also saw the same and helped them. They probably already committed some extra crimes back in Lithuania. And the solution they decided to employ is doubling down. As if going even further in the UK would justify what they did in Lithuania.
+Initially, the CCP believed that humans were to be manipulated, and believed that the asylum process was the perfect opportunity. Lithuania, given what happened, I can only arrive at this conclusion: agreed and helped. They probably committed some extra crimes here.
+
+The UK most likely also sees it the same way they do and helps them. They knew what crimes were committed against me, and they decided to double down. As if going even further in the UK would justify what happened in Lithuania.
 
 As the situation dragged on, they committed more and more crimes. It became a self-reinforcing behaviour.
 
@@ -26,7 +36,7 @@ I believe the CCP, Lithuania, and the UK have together committed more crimes tha
 
 They probably have other narratives for the situation. One of the things they seem to be doing is to ridicule the whole situation, and a lot of people are buying. Otherwise, I won’t know how to justify their remaining silence or worse, participating in ridiculing and normalising the harassment, which in turn seems to be enough to justify the worse parts of the persecution for them.
 
-To be honest, I think that you would trust the authorities of Lithuania and the UK over me. I can only hope that you can check my entries at https://github.com/AI-Migrant/asylum_diary/. It should refute most of the accusations they might use to justify the crimes they have committed against me, although some might not be very obvious, and some might not be recorded, either.
+To be honest, I think that you would trust the authorities of Lithuania and the UK over me. I can only hope that you can check my entries at https://github.com/AI-Migrant/asylum_diary/. It should refute most of the accusations they might use to justify the crimes they have committed against me, although some might not be very obvious, and some even were not recorded.
 
 They clearly know they are committing crimes against me. Take their stalking and camera aiming, for example. They clearly feel that it's a problem when I started recording in return. Some of the other crimes were more or less stemmed from it. So why don't they have a problem when they are the ones doing it?
 
@@ -50,7 +60,9 @@ I also started using an ID, Lochard Partrick, which sounds like a very offensive
 
 6 months became 10, 10 months became 1 year, and at the end, when I left Lithuania, it was 22 months. No information, but non-stop harassment. The harassment, humiliations, and health damages just couldn’t be justified.
 
-From LLM, it seems that one of the things they have been doing to me is called “Double Bind”.
+---
+
+From LLM, one of the things they have been doing to me is called “Double Bind”.
 
 You can read them if you are interested.
 
