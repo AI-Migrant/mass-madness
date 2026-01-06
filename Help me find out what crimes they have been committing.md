@@ -8,15 +8,21 @@ Secondly, when I don’t claim to be a flawless man, I assure you that I was com
 
 I have been suffering the current torment since April 2022. I am not asking for direct help, but I hope that you can find out why they need to treat me like I am a murderer, monitor me 24/7, have an absurd number of people stalking me, formally arrest me based on false accusations multiple times, and, at the same time, humiliate and harm me non-stop. They also like drugging and molesting me with unknown devices. They used to arrange women and even young girls to walk in front of me, too. I hope you can find out what happened since I applied for asylum in Lithuania or attempted to volunteer for Ukraine in Poland. I am not able to do that myself. Maybe one day, what you find out will be meaningful.
 
-They also formally arrested me multiple times with accusations they absolutely knew were fake. They took my fingerprints twice. The second time happened 1 year after the first, when they gave me a 1-year warning for “photographing children” when in fact, it was the persecutors, who include the locals, that stalked and aimed their cameras at me. The second time, they say that I am here illegally.
+They also formally arrested me multiple times with accusations they absolutely knew were fake. They took my fingerprints twice. The second time happened 1 year after the first, when they gave me a 1-year warning for “photographing children” when, in fact, it was the persecutors, who include the locals, that stalked and aimed their cameras at me. The second time, they say that I am here illegally.
 
 I believe at least part of the reason they are doing all these is for misdirection. To redirect the focus from what crimes they have committed to whatever they are accusing me of. Something which the CCP often do. And I am afraid it’s not just the CCP, given the past years.
+
+Don’t get me wrong. I do need direct help. With all that I have seen, I am convinced that not just the authorities know that the foreign persecutors treated me as non-human for years. Many people in the public also know. But they have no problem with it. Worse, they are supporting the persecutors, knowing what has happened.
+
+Please read ahead and read the online entries on GitHub. You should be able to see why I say I am treated as non-human. For one, I don’t even get to receive information about or mail designated for me.
+
+However, it will be easier for us to discuss that after you have found out what other things they have done, and in the process, confirm what I have been writing about.
 
 ---
 
 I am supposed to be an asylum seeker here in the UK. But I believe just like Lithuania created an environment for the CCP to try whatever they wanted to harm and control me, and invalidate my claim, and later also to cover the crimes they had committed in the process, the UK is also helping them both to do the same.
 
-I have explicitly told Lithuania and the UK that I felt tortured and asked them to stop their violations. It’s useless, till this day I am still suffering an array of sick behaviours, including but not limited to stalking, network control, drugging, molestation, and denied information, the right to meet a solicitor when arbitrarily arrested, and access to things, including public transport, without interference. For smaller matters, even what I eat is interfered with. I said I feel treated as non-human and I meant it.
+I have explicitly told Lithuania and the UK that I felt tortured and asked them to stop their violations. It’s useless, till this day I am still suffering an array of sick behaviours, including but not limited to stalking, network control, drugging, molestation, and denied information, the right to meet a solicitor when arbitrarily arrested, and access to things, including public transport, without interference. For smaller matters, even what I eat is interfered with. I said I feel treated as if I were non-human, and I meant it.
 
 ---
 
@@ -36,7 +42,7 @@ Property safety. I have long been aware that I can’t really do anything or own
 
 Here is some of what has happened from what I can see:
 
-It probably started with the CCP’s belief in manipulation over human beings. They likely believed the asylum process was the perfect opportunity. They are still exploiting it after today, in January 2025—44 months since they were allowed to unleash their sickness in the Foreigner Registration Centre in Lithuania. 
+It probably began with the CCP’s belief in manipulating human beings. They likely believed the asylum process was the perfect opportunity. They are still exploiting it after today, in January 2025—44 months since they were allowed to unleash their sickness in the Foreigner Registration Centre in Lithuania. 
 
 Given what happened, I can only arrive at this conclusion: Lithuania agreed and helped. They probably committed some extra crimes during my stay in Lithuania.
 
@@ -101,7 +107,3 @@ For reference:
 https://github.com/AI-Migrant/asylum_diary/edit/main/en/asylum_diary_18.txt
 
 https://github.com/AI-Migrant/asylum_diary/blob/main/en/asylum_diary_32.txt
-
-
-
-
