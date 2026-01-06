@@ -18,6 +18,8 @@ Please read ahead and read the online entries on GitHub. You should be able to s
 
 However, it will be easier for us to discuss that after you have found out what other things they have done, and in the process, confirm what I have been writing about.
 
+Having added the above paragraphs this afternoon, they stole one of the gloves I put down while getting food from a charity this evening (about an hour ago around 19:30). It's not the most serious crime, but it tells you, this is them.
+
 ---
 
 I am supposed to be an asylum seeker here in the UK. But I believe just like Lithuania created an environment for the CCP to try whatever they wanted to harm and control me, and invalidate my claim, and later also to cover the crimes they had committed in the process, the UK is also helping them both to do the same.
