@@ -18,7 +18,13 @@ Please read ahead and read the online entries on GitHub. You should be able to s
 
 However, it will be easier for us to discuss that after you have found out what other things they have done, and in the process, confirm what I have been writing about.
 
-Having added the above paragraphs this afternoon, they stole one of the gloves I put down while getting food from a charity this evening (about an hour ago around 19:30). It's not the most serious crime, but it tells you, this is them.
+### Interjection on 6 Jan 2026:
+
+Having added the above paragraphs this afternoon, they stole one of the gloves I put down while I was getting food from a charity this evening (about an hour ago, around 19:30). It's not the most serious crime, but it tells you who they are.
+
+About half an hour after the above paragraph (around 21:00), I fell asleep early. When I woke up at midnight, my remaining phone was gone. And the indirect molestation was intensified. Like I said, this is who they are.
+
+I feel more sure about what happened when my belongings were stolen on 9 Sep.
 
 ---
 
