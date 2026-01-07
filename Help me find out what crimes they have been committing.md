@@ -1,3 +1,5 @@
+**This file, and all the related repos, are still updated every now and then. Please check for updates if you are willing to help.**
+
 An attempt to make summaries over ranges of matters: https://github.com/AI-Migrant/mass-madness
 
 The entries I wrote over the years of persecution: https://github.com/AI-Migrant/asylum_diary
