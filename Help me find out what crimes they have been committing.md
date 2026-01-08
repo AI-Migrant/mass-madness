@@ -20,9 +20,9 @@ Please read ahead and read the online entries on GitHub. You should be able to s
 
 However, it will be easier for us to discuss that after you have found out what other things they have done, and in the process, confirm what I have been writing about.
 
-### Interjection on 6 Jan 2026:
+Interjection on 6 Jan 2026:
 
-Having added the above paragraphs this afternoon, they stole one of the gloves I put down while I was getting food from a charity this evening (about an hour ago, around 19:30). It's not the most serious crime, but it tells you who they are.
+Having added the above paragraphs this afternoon, they stole one of the gloves I had put down while I was getting food from a charity this evening (about an hour ago, around 19:30). It's not the most serious crime, but it reveals their character.
 
 About half an hour after the above paragraph (around 21:00), I fell asleep early. When I woke up at midnight, my remaining phone was gone. And the indirect molestation was intensified. Like I said, this is who they are.
 
@@ -68,7 +68,7 @@ They probably have other narratives for the situation. One of the things they se
 
 To be honest, I think that you would trust the authorities of Lithuania and the UK over me. I can only hope that you can check my entries at https://github.com/AI-Migrant/asylum_diary/. It should refute most of the accusations they might use to justify the crimes they have committed against me, although some may not be very obvious, and some were not even recorded.
 
-If you can get the records of our conversations, which they claimed there was none or refused to give me, you should be about to find that they often dodge some topics. I mentioned that they likely let the persecutors handle me directly. I tried to contact the Home Office multiple times, and also asked to establish a safe channel to communicate with the Home Office. They refused.
+If you can get the records of our conversations, which they claimed there were none or refused to give me, you should be about to find that they often dodge some topics. I mentioned that they likely let the persecutors handle me directly. I tried to contact the Home Office multiple times, and also asked to establish a safe channel to communicate with the Home Office. They refused.
 
 ---
 
@@ -117,3 +117,4 @@ For reference:
 https://github.com/AI-Migrant/asylum_diary/edit/main/en/asylum_diary_18.txt
 
 https://github.com/AI-Migrant/asylum_diary/blob/main/en/asylum_diary_32.txt
+
