@@ -8,19 +8,19 @@ The first thing I hope you understand is that this is serious. I am writing this
 
 Secondly, when I don’t claim to be a flawless man, I assure you that I was completely cooperative, had the interest of the host countries in mind, and appreciated even the smallest things when I applied for asylum. On the other hand, I dare say they let the persecutors handle things related to me and facilitated humiliation and harm.
 
-I have been suffering the current torment since April 2022. I am not asking for direct help, but I hope that you can find out why they need to treat me like I am a murderer, monitor me 24/7, have an absurd number of people stalking me, formally arrest me based on false accusations multiple times, and, at the same time, humiliate and harm me non-stop. They also like drugging and molesting me with unknown devices. They used to arrange women and even young girls to walk in front of me, too. I hope you can find out what happened since I applied for asylum in Lithuania or attempted to volunteer for Ukraine in Poland. I am not able to do that myself. Maybe one day, what you find out will be meaningful.
+I have been suffering the current torment since April 2022. I am not asking for direct help, but I hope that you can find out why they need to treat me like I am a murderer, monitor me and keep my network under control 24/7, have an absurd number of people stalking me, formally arrest me based on false accusations multiple times, and, at the same time, humiliate and harm me non-stop. They also like drugging and molesting me with unknown devices. They used to arrange women and even young girls to walk in front of me, too. I hope you can find out what happened since I applied for asylum in Lithuania or attempted to volunteer for Ukraine in Poland. I am not able to do that myself. Maybe one day, what you find out will be meaningful.
 
 They also formally arrested me multiple times with accusations they absolutely knew were fake. They took my fingerprints twice. The second time happened 1 year after the first, when they gave me a 1-year warning for “photographing children” when, in fact, it was the persecutors, who include the locals, that stalked and aimed their cameras at me. The second time, they say that I am here illegally.
 
 I believe at least part of the reason they are doing all these is for misdirection. To redirect the focus from what crimes they have committed to whatever they are accusing me of. Something which the CCP often do. And I am afraid it’s not just the CCP, given the past years.
 
-Don’t get me wrong. I do need direct help. With all that I have seen, I am convinced that not just the authorities know that the foreign persecutors treated me as non-human for years. Many people in the public also know. But they have no problem with it. Worse, they are supporting the persecutors, knowing what has happened.
+Don’t get me wrong. I do need direct help. With all that I have seen, I am convinced that not just the authorities but also many members of the public know that the foreign persecutors treated me as non-human for years, and they have no problem with it. Worse, they are supporting the persecutors, knowing what has happened.
 
 Please read ahead and read the online entries on GitHub. You should be able to see why I say I am treated as non-human. For one, I don’t even get to receive information about or mail designated for me.
 
 However, it will be easier for us to discuss that after you have found out what other things they have done, and in the process, confirm what I have been writing about.
 
-Interjection on 6 Jan 2026:
+<strong>Interjection on 6 Jan 2026:</strong>
 
 Having added the above paragraphs this afternoon, they stole one of the gloves I had put down while I was getting food from a charity this evening (about an hour ago, around 19:30). It's not the most serious crime, but it reveals their character.
 
@@ -32,7 +32,7 @@ I feel more sure about what happened when my belongings were stolen on 9 Sep.
 
 I am supposed to be an asylum seeker here in the UK. But I believe just like Lithuania created an environment for the CCP to try whatever they wanted to harm and control me, and invalidate my claim, and later also to cover the crimes they had committed in the process, the UK is also helping them both to do the same.
 
-I have explicitly told Lithuania and the UK that I felt tortured and asked them to stop their violations. It’s useless, till this day I am still suffering an array of sick behaviours, including but not limited to stalking, network control, drugging, molestation, and denied information, the right to meet a solicitor when arbitrarily arrested, and access to things, including public transport, without interference. For smaller matters, even what I eat is interfered with. I said I feel treated as if I were non-human, and I meant it.
+I have explicitly told Lithuania and the UK that I felt tortured and asked them to stop their violations. It’s useless, till this day I am still suffering an array of sick behaviours, including but not limited to privacy violation facilitated by abuse of power and technologies, stalking, network control, drugging, molestation, and denied information, the right to meet a solicitor when arbitrarily arrested, and access to things, including public transport, without interference. For smaller matters, even what I eat is interfered with. I said I feel treated as if I were non-human, and I meant it.
 
 ---
 
@@ -44,7 +44,7 @@ My situation is generally unsafe. They would and had pushed it to life-threateni
 
 Physical safety. I had been assaulted, and I absolutely cannot get help from the authorities. In fact, the authorities arrested me after one of the assaults to protect the perpetrators.
 
-Digital safety. I have been under extreme surveillance that monitors me both physically and digitally, including my sleeping area and bathroom. My network is controlled. Both my physical and digital mail can be intercepted.
+Digital safety. I have been under extreme surveillance that monitors me both physically and digitally, including my sleeping area and bathroom. My network is controlled. Both my physical and digital mail can be intercepted. My general privacy is violated for the entertainment of their group.
 
 Property safety. I have long been aware that I can’t really do anything or own anything safely, neither physically nor digitally. The latest theft, which stole almost everything from me, is proof. The incident about the bicycle I bought for commuting was another. It also showed that they don’t care about what problems will be caused when it’s me who will suffer.
 
@@ -54,7 +54,7 @@ Here is some of what has happened from what I can see:
 
 It probably began with the CCP’s belief in manipulating human beings. They likely believed the asylum process was the perfect opportunity. They are still exploiting it after today, in January 2025—44 months since they were allowed to unleash their sickness in the Foreigner Registration Centre in Lithuania. 
 
-Given what happened, I can only arrive at this conclusion: Lithuania agreed and helped. They probably committed some extra crimes during my stay in Lithuania.
+Given what happened, I can only conclude that Lithuania agreed and assisted. They likely committed additional crimes during my stay in Lithuania.
 
 The UK most likely sees the same and helps them, with the added necessity of covering the crimes they committed in Lithuania, and later in the UK. They knew what crimes were committed against me, and they decided to double down. As if going even further in the UK would justify what happened in Lithuania.
 
@@ -62,17 +62,17 @@ As the situation dragged on, they committed more and more crimes. It became a se
 
 I believe the CCP, Lithuania, and the UK have together committed more crimes than just what they have been doing to me directly. More than what I have written in my online entries.
 
-They probably have other narratives for the situation. One of the things they seem to be doing is to ridicule the whole situation, and a lot of people are buying. Otherwise, I won’t know how to justify their remaining silence or worse, participating in ridiculing and normalising the harassment, which in turn seems to be enough to justify the worse parts of the persecution for them.
+They probably have other narratives for the situation. One of the things they seem to be doing is ridiculing the whole situation, and a lot of people are buying into it. Otherwise, I won’t know how to justify their remaining silence or worse, participating in ridiculing and normalising the harassment, which in turn seems to be enough to justify the worse parts of the persecution for them.
 
 ---
 
 To be honest, I think that you would trust the authorities of Lithuania and the UK over me. I can only hope that you can check my entries at https://github.com/AI-Migrant/asylum_diary/. It should refute most of the accusations they might use to justify the crimes they have committed against me, although some may not be very obvious, and some were not even recorded.
 
-If you can get the records of our conversations, which they claimed there were none or refused to give me, you should be about to find that they often dodge some topics. I mentioned that they likely let the persecutors handle me directly. I tried to contact the Home Office multiple times, and also asked to establish a safe channel to communicate with the Home Office. They refused.
+If you can get the records of our conversations, which they claimed there were none or refused to give me, you should be about to find that they often dodge some topics. I mentioned that they likely let the persecutors handle me directly. I attempted to contact the Home Office multiple times and also requested the establishment of a secure communication channel with them. They refused.
 
 ---
 
-They clearly know they are committing crimes against me. Take their stalking and camera aiming, for example. They clearly feel that it's a problem when I started recording in return. Some of the other crimes were more or less stemmed from it. So why don't they have a problem when they have been doing it to me for years?
+They clearly know they are committing crimes against me. Take their stalking and camera aiming, for example. They clearly feel that it's a problem when I started recording in return. Some of the other crimes stemmed from it to a greater or lesser extent. So why don't they have a problem when they have been doing it to me for years?
 
 Also, since months after my application for asylum in Lithuania, they have been saying things like, “want revenge?”, “refugee?”, and “Mustafa/Mostafa” in a mocking tone. The way they said “refugee” was as if I should have accepted what they had done to me if I was really a refugee. That’s mindblowing given what they had been doing. Some examples are:
 
@@ -117,4 +117,14 @@ For reference:
 https://github.com/AI-Migrant/asylum_diary/edit/main/en/asylum_diary_18.txt
 
 https://github.com/AI-Migrant/asylum_diary/blob/main/en/asylum_diary_32.txt
+
+
+
+I hope that before you let some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the following happened since the beginning and continues to this day.  I tried to interpret their actions differently, but eventually concluded that it had to be the case.
+
+They have assisted the CCP in forcing me to relive persecution, further treating me discriminately, humiliating me and causing permanent damage to my health—despite my attempts to volunteer for Ukraine, a country they claim to support.
+
+They have been drugging and molesting me for years. I didn’t realise at the beginning.
+
+They are committing literal crimes like stalking, assault, theft, and are backing them with power abuse, arbitrary arrests and denial of rights.
 
