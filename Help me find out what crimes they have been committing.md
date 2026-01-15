@@ -62,13 +62,13 @@ As the situation dragged on, they committed more and more crimes. It became a se
 
 I believe the CCP, Lithuania, and the UK have together committed more crimes than just what they have been doing to me directly. More than what I have written in my online entries.
 
-They probably have other narratives for the situation. One of the things they seem to be doing is ridiculing the whole situation, and a lot of people are buying into it. Otherwise, I won’t know how to justify their remaining silence or worse, participating in ridiculing and normalising the harassment, which in turn seems to be enough to justify the worse parts of the persecution for them.
+They probably have other narratives for the situation. One of the things they seem to be doing is ridiculing the whole situation, and many people are buying into it. Otherwise, I won’t know how to justify their remaining silence or worse, participating in ridiculing and normalising the harassment, which in turn seems to be enough to justify the worse parts of the persecution for them.
 
 ---
 
-To be honest, I think that you would trust the authorities of Lithuania and the UK over me. I can only hope that you can check my entries at https://github.com/AI-Migrant/asylum_diary/. It should refute most of the accusations they might use to justify the crimes they have committed against me, although some may not be very obvious, and some were not even recorded.
+To be honest, I think you would trust the authorities of Lithuania and the UK more than you would trust me. I  hope that you will check my entries https://github.com/AI-Migrant/asylum_diary/ nonetheless. It should refute most of the accusations they might use to justify the crimes they have committed against me, although some may not be immediately apparent, and some were not even documented.
 
-If you can get the records of our conversations, which they claimed there were none or refused to give me, you should be about to find that they often dodge some topics. I mentioned that they likely let the persecutors handle me directly. I attempted to contact the Home Office multiple times and also requested the establishment of a secure communication channel with them. They refused.
+If you can obtain the records of our conversations, which they claimed there were none or refused to give me, you should be able to find that they often dodge certain topics. I mentioned that they likely let the persecutors handle me directly. I attempted to contact the Home Office multiple times and also requested the establishment of a secure communication channel with them. They refused.
 
 ---
 
@@ -76,7 +76,7 @@ They clearly know they are committing crimes against me. Take their stalking and
 
 Also, since months after my application for asylum in Lithuania, they have been saying things like, “want revenge?”, “refugee?”, and “Mustafa/Mostafa” in a mocking tone. The way they said “refugee” was as if I should have accepted what they had done to me if I was really a refugee. That’s mindblowing given what they had been doing. Some examples are:
 
-Throughout the years of the asylum process, I have received barely any documents or information from them, and even less was genuine. You will be able to find in the latter entries that they literally deny me basic rights, with which information was also denied. With information withheld, I have been treated arbitrarily, to say the least.
+Throughout the years of the asylum process, I have received barely any documents or information from them, and even less of it was genuine. You will find in the latter entries that they literally deny me basic rights, with which information was also withheld. With information withheld, I have been treated arbitrarily, to put it mildly.
 
 They have repeatedly damaged my health. My respiratory system is severely weakened and hasn’t been able to recover.
 
@@ -118,13 +118,16 @@ https://github.com/AI-Migrant/asylum_diary/edit/main/en/asylum_diary_18.txt
 
 https://github.com/AI-Migrant/asylum_diary/blob/main/en/asylum_diary_32.txt
 
+---
 
-
-I hope that before you let some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the following happened since the beginning and continues to this day.  I tried to interpret their actions differently, but eventually concluded that it had to be the case.
+I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the following happened since the beginning and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP.
 
 They have assisted the CCP in forcing me to relive persecution, further treating me discriminately, humiliating me and causing permanent damage to my health—despite my attempts to volunteer for Ukraine, a country they claim to support.
 
 They have been drugging and molesting me for years. I didn’t realise at the beginning.
 
-They are committing literal crimes like stalking, assault, theft, and are backing them with power abuse, arbitrary arrests and denial of rights.
+They are now blatantly committing crimes, including but not limited to stalking, assault, theft, and are backing them with power abuse, arbitrary arrests and denial of rights.
 
+They are also further limiting my access to public services, after stealing my belongings to take away the means for me to spend my time in a less wretched way.
+
+Aside from the violations I have been suffering almost every day, the permanent damages and other lasting effects there will be, they have already taken years from my life. I estimate my productive age will end around 60. With the 44.5 months they have taken as of 15 Jan 2026, they have taken 16.5% of my remaining life. Let’s be frank, I am pretty worthless now, but when this ends, I won’t be able to warp around the lost years. What they have taken away from my life is not my worthless now, but my future, if I have one. Moreover, as humans, we begin to decline in certain aspects after adolescence, and more and more aspects as we age further. What I could have done in these robbed years, I will have to spend longer to cover it when I am out of this persecution. Again, it is if this would end some day.
