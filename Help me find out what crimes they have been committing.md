@@ -8,7 +8,7 @@ The first thing I hope you understand is that this is serious. I am writing this
 
 Secondly, when I don’t claim to be a flawless man, I assure you that I was completely cooperative, had the interest of the host countries in mind, and appreciated even the smallest things when I applied for asylum. On the other hand, I dare say they let the persecutors handle things related to me and facilitated humiliation and harm.
 
-I have been suffering the current torment since April 2022. I am not asking for direct help, but I hope that you can find out why they need to treat me like I am a murderer, monitor me and keep my network under control 24/7, have an absurd number of people stalking me, formally arrest me based on false accusations multiple times, and, at the same time, humiliate and harm me non-stop. They also like drugging and molesting me with unknown devices. They used to arrange women and even young girls to walk in front of me, too. I hope you can find out what happened since I applied for asylum in Lithuania or attempted to volunteer for Ukraine in Poland. I am not able to do that myself. Maybe one day, what you find out will be meaningful.
+I have been suffering the current torment since April 2022. I am not asking for direct help, but I hope that you can find out what other crimes they have been committing. Please consider why they need to monitor me more than they would murderers, have an absurd number of people stalking me, keep my network under control 24/7 everywhere, formally arrest me based on false accusations intentionally multiple times and search my belongings thoroughly out of my sight, while at the same time, humiliate and harm me non-stop. They also like drugging and molesting me with unknown devices. They used to arrange women and even young girls to walk in front of me, too. I hope you can find out what happened since I applied for asylum in Lithuania or attempted to volunteer for Ukraine in Poland. I am not able to do that myself. Maybe one day, what you find out will be meaningful.
 
 They also formally arrested me multiple times with accusations they absolutely knew were fake. They took my fingerprints twice. The second time happened 1 year after the first, when they gave me a 1-year warning for “photographing children” when, in fact, it was the persecutors, who include the locals, that stalked and aimed their cameras at me. The second time, they say that I am here illegally.
 
@@ -40,7 +40,7 @@ Currently, they have stolen almost everything from me. I stay alive on the stree
 
 A life that doesn’t even remotely resemble a normal one, let alone doing anything meaningful.
 
-My situation is generally unsafe. They would and had pushed it to life-threatening danger to invalidate it, despite I had said that’s not the kind of safety I was talking about.
+My situation is generally unsafe. They would and had pushed it to life-threatening danger to invalidate it, despite the fact that I had said that’s not the kind of safety I was talking about.
 
 Physical safety. I had been assaulted, and I absolutely cannot get help from the authorities. In fact, the authorities arrested me after one of the assaults to protect the perpetrators.
 
@@ -120,7 +120,9 @@ https://github.com/AI-Migrant/asylum_diary/blob/main/en/asylum_diary_32.txt
 
 ---
 
-I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the following happened since the beginning and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP.
+I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the following happened since the beginning and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP. Please also keep in mind that a huge number of members of the public are helping them, which means they support the sick behaviours. Probably more know about the situation but remain silent.
+
+Please compound every act of persecution by 3.5 years and the support from the members of the public.
 
 They have assisted the CCP in forcing me to relive persecution, further treating me discriminately, humiliating me and causing permanent damage to my health—despite my attempts to volunteer for Ukraine, a country they claim to support.
 
@@ -130,4 +132,4 @@ They are now blatantly committing crimes, including but not limited to stalking,
 
 They are also further limiting my access to public services, after stealing my belongings to take away the means for me to spend my time in a less wretched way.
 
-Aside from the violations I have been suffering almost every day, the permanent damages and other lasting effects there will be, they have already taken years from my life. I estimate my productive age will end around 60. With the 44.5 months they have taken as of 15 Jan 2026, they have taken 16.5% of my remaining life. Let’s be frank, I am pretty worthless now, but when this ends, I won’t be able to warp around the lost years. What they have taken away from my life is not my worthless now, but my possible future, if I have one. Moreover, as humans, we begin to decline in certain aspects after adolescence, and this decline continues in more aspects as we age further. What I could have done in these robbed years, I will have to spend longer to cover it when I am out of this persecution. Again, it is a question of whether this will end someday.
+Aside from the violations I have been suffering almost every day, the permanent damages and other lasting effects there will be, they have already taken years from my life. I estimate my productive age will end around 60. With the 44.5 months they have taken as of 15 Jan 2026, they have taken 16.5% of my remaining life. Let’s be frank, I am pretty worthless now, but when this ends, I won’t be able to warp around the lost years. What they have taken away from my life is not my worthless now, but my possible future, if I have one. Moreover, as humans, we begin to decline in certain aspects after adolescence, and this decline continues in more aspects as we age further. What I could have done in these robbed years, I will have to spend longer to cover it when I am out of this persecution. Again, it is a question of whether this will come to an end someday.
