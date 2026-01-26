@@ -1,6 +1,19 @@
+Please know that this is a serious call for help, no matter on what channel you see this: feedback, repo, post, email, etc.
+
+I have been falsely imprisoned since Apr 2022 when I applied for asylum. Lithuania helped the CCP; the UK is now helping them.
+
+The help I need is threefold:
+1. Expose their crimes
+2. Get my belongings back
+3. Rid me of their surveillance and influence
+
+Please note that most organisations, governmental or non-governmental, I have come into contact worked with them. I am not sure where you can get people to help me. Perhaps you can try to ask your government, such as the migration department, especially if you are from another EU country, to find out what happened to an asylum application of a Hongkongian in Lithuania around the end of Apr 2022, and in the UK in Feb 2024.
+
+---
+
 This is a new repo for the mass madness and crimes I have been suffering for years, intensified since I applied for asylum in Lithuania and later in the United Kingdom.
 
-It involves multiple governments, multinational corporations, NGOs, and pretty much any organisation or group of humans, even a large portion of the public.
+The persecution I have been facing involves multiple governments, multinational corporations, NGOs, and pretty much any organisation or group, even a large portion of the public.
 
 The original entries can be found in the repo https://github.com/AI-Migrant/asylum_diary, or from the account I originally used to write them [locharp](https://github.com/locharp)
 
@@ -13,6 +26,7 @@ To put the whole persecution under one roof, the best summary is perhaps this:
 What was originally committed by one notorious regime is now joined by many.
 
 ---
+
 **Partial account of the on-going persecution**
 
 1. I have received barely any information in the past year, and even less was genuine.
