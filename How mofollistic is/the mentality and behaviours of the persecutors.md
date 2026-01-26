@@ -1,4 +1,4 @@
-How mofollistic is the mentality of the persecutors, regardless of origin.
+How mofollistic is the mentality and behaviours of the persecutors, regardless of origin.
 
 Many of the following are not serious crimes. I write about them to illustrate the mentality and behaviours of the persecutors. But you should always keep in mind not to get distracted and forget about their greater crimes.
 
@@ -26,7 +26,6 @@ She also asked if I read Naruto. She seemed disappointed when I said I didn’t.
 
 There was a time when someone approached me and suggested that we should be closer as our nations were close to each other. He mentioned his admiration for the patriotism and nationalism of the Chinese people. It was a time when it was already clear that every person who talked to me there was with the persecutors, but I talked to him nonetheless. By Chinese people, he most likely meant the Communist Chinese. I told him that they only take, won’t give. I told him an example of when I was studying in my homeland. I took the initiative to start a study group. I eventually stopped talking in the group because they wouldn’t say anything, even when they knew the answers to the questions raised. He changed the topic, if I remember correctly; by the end of the conversation, his friendliness had already gone.
 
-
 ---
 
 They also sent children to me for unknown reasons. You may recall that they falsely accused me of photographing children after an arbitrary arrest in the UK. It continued even after that. They would have children waiting at places I often stop by. For example, they would wait at a park with the children and have them come to “use the facility I was using to exercise”, precisely in the middle of my workout. On one recent occasion, they even had the children bump into me when I was sitting. This is one of the reasons that I said everything is a tool to them.
@@ -35,9 +34,9 @@ Another notable instance happened soon after my application in Lithuania. One ch
 
 ---
 
-Places I visit will suddenly become “popular” and crowded, and services will pause or go offline. I have mentioned that I am constantly stalked—this even includes toilets. It won’t be too far from the truth to say that if I go into a loo, then it must follow, as the night the day, the urinals will soon not be neglected.
+Places I visit will suddenly become “popular” and crowded, and services will pause or go offline. I have mentioned that I am constantly stalked—this even includes toilets. It won’t be too far from the truth to say that if I go into a loo, then it must follow, as the night the day, the urinals won’t be left to decay.
 
-But they surely go above and beyond when it comes to this kind of things. Here is an email exchange between me and a charity, at whose premises the persecutors attempted to break into the toilet after a possible case of food poisoning.
+But they surely go above and beyond when it comes to these kinds of things. Here is an email exchange between me and a charity, at whose premises the persecutors attempted to break into the toilet following a suspected case of food poisoning.
 
 I believe it’s not hard to tell I am not proud to mention the things I mentioned in the letter, but the sickness must be brought to the light.
 
