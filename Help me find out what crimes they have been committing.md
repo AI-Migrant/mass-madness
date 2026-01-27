@@ -135,5 +135,3 @@ They are now blatantly committing crimes, including but not limited to stalking,
 They are also further limiting my access to public services, after stealing my belongings to take away the means for me to spend my time in a less wretched way.
 
 Aside from the violations I have been suffering almost every day, the permanent damages and other lasting effects there will be, they have already taken years from my life. I estimate my productive age will end around 60. With the 44.5 months they have taken as of 15 Jan 2026, they have taken 16.5% of my remaining life. Let’s be frank, I am pretty worthless now, but when this ends, I won’t be able to warp around the lost years. What they have taken away from my life is not my worthless now, but my possible future, if I have one. Moreover, as humans, we begin to decline in certain aspects after adolescence, and this decline continues in more aspects as we age further. What I could have done in these robbed years, I will have to spend longer to cover it when I am out of this persecution. Again, it is a question of whether this will come to an end someday.
-
-and the people suupo

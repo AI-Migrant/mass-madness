@@ -1,13 +1,20 @@
-Please know that this is a serious call for help, no matter on what channel you see this: feedback, repo, post, email, etc.
+# SOS
+Please know that this is a serious call for help, no matter on what unlikely channel you see this message: feedback, repo, post, email, etc.
 
-I have been falsely imprisoned since Apr 2022 when I applied for asylum. Lithuania helped the CCP; the UK is now helping them.
+I have been falsely imprisoned since Apr 2022. On the outside, I seem to walk freely on the street, but what I can do is very limited.
 
 The help I need is threefold:
 1. Expose their crimes
 2. Get my belongings back
 3. Rid me of their surveillance and influence
 
-Please note that most organisations, governmental or non-governmental, I have come into contact worked with them. I am not sure where you can get people to help me. Perhaps you can try to ask your government, such as the migration department, especially if you are from another EU country, to find out what happened to an asylum application of a Hongkongian in Lithuania around the end of Apr 2022, and in the UK in Feb 2024.
+Perhaps you could try to ask your government, such as the migration department, especially if you are from another EU country, to look into what happened to the asylum application of a person from Hong Kong in Lithuania around the end of Apr 2022, and in the UK in Feb 2024.
+
+But most organisations, both governmental and non-governmental, with which I have come into contact, sided with them without question.
+
+I am not sure where you can find people who can help me. It's unlikely that Lithuania and the UK are the only two.
+
+I used other accounts before; I can’t use them anymore because my belongings are stolen. I am accessing the internet using library computers, but they are also monitored. I am not sure if I am reaching anyone aside from the persecutors, nor am I sure it will reach me if you contact me.
 
 ---
 
