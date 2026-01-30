@@ -1,5 +1,4 @@
 ## Privacy violation
-
 Shortly after entering the Foreigners Registration Centre in Lithuania, I overheard the mention of “6 A’s” and “number 1” for some unknown reason. I did show the Migration Department of Lithuania the results of my latest studies, hoping to let them know I was working hard and would be able to contribute, but I didn’t mention it to anyone else. Moreover, the result didn’t specify a rank, nor did I.
 
 And why was it even their business? I don’t think there were good reasons. A reason I can think of is similar to the reason why they have been damaging my health. A crazy and pathetic one.

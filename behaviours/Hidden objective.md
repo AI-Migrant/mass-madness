@@ -1,2 +1,2 @@
 ## Hidden objective
-It's like also their original objective.
+It's likely also their original objective.
