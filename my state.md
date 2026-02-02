@@ -1,5 +1,6 @@
 # I am not fine
-The persecutors act as if what they have done to me was not serious. That's just a way to dismiss their crime.
+
+The persecutors act as if what they have done to me was not serious. That’s just a way to dismiss their crime. Let me be clear, I do not consider my current state living.
 
 One of the reasons they have been repeating their petty crimes is also likely to direct the focus away from the serious crimes they have committed.
 
@@ -7,7 +8,7 @@ One of the reasons they have been repeating their petty crimes is also likely to
 
 I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the following happened since the beginning and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP. Please also keep in mind that a huge number of members of the public are helping them, which means they support the sick behaviours. Probably more know about the situation but remain silent.
 
-Please compound every act of persecution by 3.5 years and the support from the members of the public.
+Please compound every act of persecution by 3.5 years, the support from the members of the public, and the fact that all these are done after I tried to volunteer for their neighbour.
 
 They have assisted the CCP in forcing me to relive persecution, further treating me discriminately, humiliating me and causing permanent damage to my health—despite my attempts to volunteer for Ukraine, a country they claim to support.
 
@@ -25,4 +26,4 @@ If that is not enough, I recently came across this post on X in which some peopl
 
 They were talking about authorities, so you might say that the situation may not be as bad from the common people’s side, which should matter more to daily life. Let’s think about the reason the authorities are unapologetic. The root cause might be about appearance and status, but what enables their unapologetic behaviours is power—the absence of consequences, even if they double down instead.
 
-As for the common people in my situation, I have already been made a lower being in society. They are encouraged and instructed to mistreat me. Where would the consequence come from? Law is also just a tool that I can come into contact with when they use it, or twist it, to restrict or punish me. Nobody is speaking up. The common people are in the same position as the authorities—a position of impunity.
+As for the common people in my situation, I am already seen as a lower being in society. They are encouraged and instructed to mistreat me. Where would the consequence come from? Law is also just a tool that I can come into contact with when they use it or twist it to restrict or abuse me. Nobody is speaking up. The common people are in the same position as the authorities—a position of impunity.
