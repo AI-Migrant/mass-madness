@@ -1,9 +1,9 @@
 ## Everything is a tool to them
 
 ### Your good nature
-First and foremost, it’s your good nature that they will use it as a tool against you:
+First and foremost, it’s your good nature that they will exploit against you:
 You are nice? They try to establish hierarchy and make you an underling.
-You are compliant? They make up rules to facilitate their sick behaviours.
+You are compliant? They make up rules to facilitate their sick behaviours and crimes.
 You are diligent? They try to mold you into an exploitable.
 You are kind generally? They send people to drain and damage your already limited resources, and look for openings to harm you.
 You are kind to the elderly, women and children? They send them as harassers and stalkers.
