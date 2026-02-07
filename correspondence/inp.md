@@ -1,4 +1,6 @@
-I have been treated as non-human for almost 4 years now. Months ago, the local authorities and foreign persecutors stole my belongings. All kinds of organisations side with them without question. I am under constant surveillance. If someone(s) appears to try to speak to me, over 95% they are from the persecutor group. If they try to fill you in about me, over 99% they are the persecutors. If they are from the authorities, there is virtually no chance that they are not the persecutors.
+Please don't try to talk to me. I can only read, and I am inclined to believe those who come to talk to me are most likely from the persecutor group that take advantage of this and tried to create a narrative. I am constantly monitored and stalked. If someone(s) appears to try to speak to me, over 95% they are from the persecutor group. If they try to fill you in about me, over 99% they are the persecutors. If they are from the authorities, there is virtually no chance that they are not the persecutors.
+
+I have been treated as non-human for almost 4 years now. Months ago, the local authorities and foreign persecutors stole my belongings. All kinds of organisations side with them without question. There are even a huge number of members of the public supporting them.
 
 If you can’t believe and acknowledge the above, you may want to just leave.
 
