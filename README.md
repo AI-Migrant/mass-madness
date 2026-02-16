@@ -3,13 +3,13 @@ Please know that this is a serious call for help. You might be reading this on a
 
 The governments of the host countries are helping the persecutors:
 1. I am under extreme surveillance constantly.
-1. They have damaged my health.
-2. They have been drugging and molesting me.
-3. They have been intercepting my mail and digital activities.
-4. My access to many things, including my own data, legal assistant, public services and even private services such retails is restricted.
-5. They arranged assaults followed by an arbitrary arrest, and destroyed my phone to destroy the evidence.
-6. Even before that, they arbitrarily arrested me and searched all my belongings, including those in the supposed asylum accommodation.
-7. And then they stole all my belongings, including my other devices.
+2. They have damaged my health.
+3. They have been drugging and molesting me.
+4. They have been intercepting my mail and digital activities.
+5. My access to many things, including my own data, legal services, public services, and even private services such as retail, is restricted.
+6. They arranged assaults followed by an arbitrary arrest, and destroyed my phone to destroy the evidence.
+7. Even before that, they arbitrarily arrested me and searched all my belongings, including those in the supposed asylum accommodation.
+8. And then they stole all my belongings, including my other devices.
 I essentially have been falsely imprisoned since Apr 2022. While I may appear to walk freely on the street, what I can do is very limited.
 Don't fall for their narratives, such as it being normal surveillance and waiting of asylum process, they have been going out of their way to harm me.
 
