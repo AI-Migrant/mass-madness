@@ -1,5 +1,5 @@
 ## Experimenting
-See also: https://github.com/AI-Migrant/mass-madness/blob/main/behaviours/Molestation.md
+Read also: https://github.com/AI-Migrant/mass-madness/blob/main/behaviours/Molestation.md
 
 I saw a post on X that talked about devices that affect people remotely sometime ago: https://x.com/DaveyJones18897/status/2010289619544252670
 
