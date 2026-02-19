@@ -23,7 +23,8 @@ https://github.com/AI-Migrant/mass-madness
 The repository asylum_diary began as a record of the things I had strange feelings about. It became more direct about the persecution when I no longer doubted that the host countries had joined the persecutors.  
 https://github.com/AI-Migrant/asylum_diary
 
-The repository persecuted-media-files started very late. It holds some media files related to the persecution.
+The repository persecuted-media-files started very late. It holds some media files related to the persecution.  
+https://github.com/AI-Migrant/persecuted-media-files
 
 Here is also a summary of what they have done:
 - They deprived me of the security to do anything, use anything and have anything. I don’t even get to receive information about myself.
