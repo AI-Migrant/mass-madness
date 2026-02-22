@@ -1,8 +1,8 @@
-This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at https://github.com*
+*This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at https://coda.grammarly.com/d/inn_dg4IDZ4crux*
 
-I am writing this with utmost seriousness, knowing that my persecutors will read these words before they are even sent. I hesitated and was not sure about how to write this. I am writing this with the assistance of Grammarly and LLMs, mostly to correct grammar and choose the correct words.
+Pardon me for not writing this in a more formal format, which I am not particularly skilled at, in any case. But I am writing this with utmost seriousness, knowing that my persecutors will read these words before they are even sent. I hesitated and was not sure about how to write this. I am writing this with the assistance of Grammarly and LLMs, mostly to correct grammar and choose the correct words.
 
-I ask for your serious consideration.
+If you are an ordinary individual like me, I kindly ask for your help in passing this message to the relevant officials. If you are an official from the countries I am reaching out to, I respectfully request your serious consideration of my proposal and your assistance.
 
 I surely am not flawless, and there will likely be aspersions cast on me, but I hope that you can pass judgments about both the persecutors and me with the wisdom of what’s justifiable.
 
