@@ -4,7 +4,7 @@ Pardon me for not writing this in a more formal format, which I am not particula
 
 If you are an ordinary individual like me, I kindly ask for your help in passing this message to the relevant officials. If you are an official from the countries I am reaching out to, I respectfully request your serious consideration of my proposal and your assistance.
 
-I surely am not flawless, and there will likely be aspersions cast on me, but I hope that you can pass judgments about both the persecutors and me with the wisdom of what is justifiable.
+I surely am not flawless, and there will likely be aspersions cast upon me. I hope that you will take into account that I have been living under this sickness, the “hehehe” sickness if you will, for years, deprived of normalcy. And I hope that you can pass judgments about both the persecutors and me with the wisdom of what is justifiable.
 
 To put it simply, which probably oversimplifies things, for a quick understanding of what has happened:
 - Lithuania faked an asylum process to let the Chinese Communist Party treat me arbitrarily indefinitely. Together, they likely committed additional crimes in the process. 
