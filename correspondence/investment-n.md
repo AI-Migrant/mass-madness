@@ -1,10 +1,17 @@
-*This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at https://coda.grammarly.com/d/inn_dg4IDZ4crux*
+*This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at https://coda.grammarly.com/d/_d5Jrbrmt8A6*
+
+For contact, please try channels that include but are not limited to the following:
+Email: artificialillegalmigrant@outlook.com  
+X: https://x.com/AI_Migrant  
+Grammarly comment: https://coda.grammarly.com/d/_dg4IDZ4crux (The comment option shows when text is highlighted.)
 
 Pardon me for not writing this in a more formal format, which I am not particularly skilled at, in any case. But I am writing this with utmost seriousness, knowing that my persecutors will read these words before they are even sent. I hesitated and was not sure about how to write this. I am writing this with the assistance of Grammarly and LLMs, mostly to correct grammar and choose the correct words.
 
-If you are an ordinary individual like me, I kindly ask for your help in passing this message to the relevant officials. If you are an official from the countries I am reaching out to, I respectfully request your serious consideration of my proposal and your assistance.
+If you are an ordinary individual like me, I ask for your kind help in passing this message to the relevant officials. If you are an official from the countries I am reaching out to, I respectfully request your thoughtful consideration of my proposal and your assistance.
 
-I surely am not flawless, and there will likely be aspersions cast upon me. I hope that you will take into account that I have been living under this sickness, the “hehehe” sickness if you will, for years, deprived of normalcy. And I hope that you can pass judgments about both the persecutors and me with the wisdom of what is justifiable.
+I hope that you understand that I am very serious about the gravity and necessity of this plea. Please do not treat me with calculation, especially not in collusion with my persecutors.
+
+I surely am not flawless, and there will likely be aspersions cast upon me. I hope that you can take into account that my life has been deprived of normalcy for years. I have been living under the “hehehe” sickness, the namesake of which you will find when you read through the records I have written over the years. And I hope that you can pass judgments about both the persecutors and me with the wisdom of what is justifiable.
 
 To put it simply, which probably oversimplifies things, for a quick understanding of what has happened:
 - Lithuania faked an asylum process to let the Chinese Communist Party treat me arbitrarily indefinitely. Together, they likely committed additional crimes in the process. 
@@ -15,7 +22,7 @@ What I have been suffering may not include the kind of direct physical torture p
 
 The persecutor group, which can disseminate their narratives far more easily than I can, will likely present a different story.
 
-I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the persecutors were enabled to continue the persecution since the beginning, when I applied for asylum right after not receiving a reply from a possibly fake email address I was given to contact the volunteers for Ukraine, and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP. Please also keep in mind that a vast number of members of the public are helping them, effectively endorsing the sick behaviours and literal crimes. It is also possible that the public knows about even the crimes I have been hoping to have it investigated by other countries or organisations. Yet, they not only continue to remain silent, but are more determined to help the persecutors blame everything on me.
+I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the persecutors were enabled to continue the persecution since the beginning, when I applied for asylum right after not receiving a reply from a possibly fake email address I was given to contact the volunteers for Ukraine, and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP. Please also keep in mind that a vast number of members of the public are helping them, effectively endorsing the sick behaviours and literal crimes. It is also possible that the public knows even about the crimes I have been hoping to have investigated by other countries or organisations. Yet, they not only continue to remain silent, but are more determined to help the persecutors blame everything on me.
 
 I wanted to write enough to let you know more about the situation, but I don’t know how much is enough if what I have written is not enough. And I am afraid that there will not be much left of me. I hope what I have written is enough to let you know I tried to offer the best, I even considered dying while volunteering to be acceptable, but they decided to and actually treated me as less than human for years. This is a basis I hope you acknowledge; I am not looking forward to suffering new persecutors.
 
@@ -52,7 +59,7 @@ I ask for an investment of help with the following:
 
 3 and 4 involve offering me a place, not to repeat what the persecutors have done, and not to help or allow them to continue in your country. I am not asking for reverence, just basic human respect and decency.
 
-I fear I cannot endure another “asylum process”. Allow me to be so bold as to ask for an arrangement where I can work for a trusted organisation in your country that will not help the persecutors, or an extra investment of trust and let me see what I can do. The latter might actually be the only way that will work. I will explain why below.
+I fear I cannot endure another “asylum process”. Allow me to be so bold as to ask for an arrangement where I can work for a trusted organisation in your country that will not help the persecutors, or an additional investment of trust and let me see what I can do. The latter might actually be the only way that will work. I will explain why below.
 
 To be honest, I am inclined to believe that many countries already have intelligence on such an event, one way or another. If doubts remain even after reviewing the record I have documented over the years, I will accept some kind of security measure, about which allow me to discuss only when I am in your country. Please know that I am once again placing myself at the mercy of another nation, this time, yours, and certainly hope to make it work for both of us.
 
@@ -78,7 +85,7 @@ I am asking you to make the investment having considered all these and the fact 
 
 ---
 
-Although I am the one asking, I find it hard to imagine any government genuinely helping or treating me with sincerity, instead of siding with the persecutors, who are more their peers than I am—a mere individual. Since I have brought this up. I want to emphasise that when I mean to hold my end in full, if the other end is not held, I will not be bound either.
+Although I am the one asking, I find it hard to imagine any government genuinely helping or treating me with sincerity, instead of siding with the persecutors, who are more their peers than I am—a mere individual. Since this has been brought up. I want to emphasise that when I mean to hold my end in full, if the other end is not held, I will not be bound either.
 
 ---
 
