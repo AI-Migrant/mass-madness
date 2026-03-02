@@ -1,6 +1,7 @@
 # I am not fine
+I can do little more than maintain the knowledge I already have and waste away.
 
-The persecutors act as if what they have done to me was not serious. That’s just a way to dismiss their crime. Let me be clear, I do not consider my current state living.
+The persecutors act as if what they have done to me is not serious—that’s just a way to dismiss their crime. Let me be clear, I do not consider my current state living.
 
 One of the reasons they have been repeating their petty crimes is also likely to direct the focus away from the serious crimes they have committed.
 

@@ -1,5 +1,4 @@
 ## Condescension
-
 A staff member contacted me when I decided to quit the programme; I mentioned the situation of the study group during the conversation. Her response was something like “Oh, it’s because they don’t play with you.” I probably failed to respond because I was rendered speechless. 
 
 Does this sound familiar if you have read my entries? It’s the “Baby, hehehe.” mentality and narrative. Persecutors seem to like infantilising their targets and proceed to feel everything they do is automatically justified, perhaps because “they are adults and know better”?
