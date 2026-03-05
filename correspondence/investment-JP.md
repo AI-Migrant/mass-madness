@@ -1,11 +1,11 @@
 このメッセージは、訂正や明確化のために更新される可能性がありますが、本質は変わりません。
 同時に、以下にも保存されています：
-https://coda.grammarly.com/d/_d5Jrbrmt8A6
+https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6
 
 連絡を取っていただく際は、以下を含む複数の手段をお試しください：
 電子メール：artificialillegalmigrant@outlook.com
 X：https://x.com/AI_Migrant
-Grammarly コメント：https://coda.grammarly.com/d/_d5Jrbrmt8A6 (テキストをハイライトすると、コメントのオプションが表示されます。)
+Grammarly コメント：https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6 (テキストをハイライトすると、コメントのオプションが表示されます。)
 
 形式的な文書を書くのが得意ではなく、このような形になってしまうことをお許しください。しかし、私は最大限の真剣さをもって書いています。私を迫害している者たちは、私が送る前にこの言葉を読むであろうことも承知しています。どう書くべきか迷い、ためらいもありました。文法や語彙の選択のために、Grammarly や LLM の助けを借りています。
 
@@ -98,3 +98,4 @@ https://github.com/AI-Migrant/persecuted-media-files
 
 どうか、まだ私に何かが残っているうちに、私を受け入れてください。
 
+早く受け入れていただければいただくほど、私は損なわれずに済み、人生を立て直して価値あるものにするための時間も多く残ります。それこそが、あなたの投資に対するリターンとなるのです。

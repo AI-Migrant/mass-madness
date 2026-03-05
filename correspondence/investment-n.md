@@ -92,3 +92,5 @@ Although I am the one asking, I find it hard to imagine any government genuinely
 As mentioned, I am under total surveillance and control. I hope this message reaches you and that your response finds its way to me. If you do not receive a reply from me after sending yours, please note that I spend most of my days in libraries and my nights sleeping on the streets around Camden, London.
 
 I hope that you will take me in when there is still something left of me.
+
+The earlier you take me in, the less I will have been degraded and the more time I will have left to rebuild my life into a worthy one, which will be the return of your investment.
