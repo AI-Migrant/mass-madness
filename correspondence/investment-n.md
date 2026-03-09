@@ -1,9 +1,13 @@
-*This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at https://coda.grammarly.com/d/_d5Jrbrmt8A6*
+*This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at  
+https://github.com/AI-Migrant/mass-madness/blob/main/correspondence/investment-n.md  
+Japanese version  
+https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6  
+https://github.com/AI-Migrant/mass-madness/blob/main/correspondence/investment-JP.md*
 
 For contact, please try channels that include but are not limited to the following:
 Email: artificialillegalmigrant@outlook.com  
 X: https://x.com/AI_Migrant  
-Grammarly comment: https://coda.grammarly.com/d/_dg4IDZ4crux (The comment option shows when text is highlighted.)
+Grammarly comment: inn(The comment option shows when text is highlighted.)
 
 Pardon me for not writing this in a more formal format, which I am not particularly skilled at, in any case. But I am writing this with utmost seriousness, knowing that my persecutors will read these words before they are even sent. I hesitated and was not sure about how to write this. I am writing this with the assistance of Grammarly and LLMs, mostly to correct grammar and choose the correct words.
 
@@ -12,6 +16,8 @@ If you are an ordinary individual like me, I ask for your kind help in passing t
 I hope that you understand that I am very serious about the gravity and necessity of this plea. Please do not treat me with calculation, especially not in collusion with my persecutors.
 
 I surely am not flawless, and there will likely be aspersions cast upon me. I hope that you can take into account that my life has been deprived of normalcy for years. I have been living under the “hehehe” sickness, the namesake of which you will find when you read through the records I have written over the years. And I hope that you can pass judgments about both the persecutors and me with the wisdom of what is justifiable.
+
+
 
 To put it simply, which probably oversimplifies things, for a quick understanding of what has happened:
 - Lithuania faked an asylum process to let the Chinese Communist Party treat me arbitrarily indefinitely. Together, they likely committed additional crimes in the process. 
@@ -51,11 +57,7 @@ Here is also a summary of what they have done:
 
 I try to stay sane and relevant, but the reality is that I am being killed day by day.
 
-I ask for an investment of help with the following:
-1. Expose the crimes of my persecutors
-2. Recover my belongings
-3. Rid me of their surveillance and influence
-4. Allow me to establish my life in a safe and respectful place.
+My main request is for an investment of help in the following areas: 1. Expose the crimes of my persecutors 2. Recover my belongings 3. Free me from their surveillance and influence 4. Enable me to reestablish my life in a safe and respectful environment.
 
 3 and 4 involve offering me a place, not to repeat what the persecutors have done, and not to help or allow them to continue in your country. I am not asking for reverence, just basic human respect and decency.
 

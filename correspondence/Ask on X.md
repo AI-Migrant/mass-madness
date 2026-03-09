@@ -7,23 +7,21 @@ https://coda.grammarly.com/d/inn_dg4IDZ4crux
 
 It may be unusual to make a serious plea on X, but I'm trying every avenue.
 
-I hope to find protection in the US or Japan & be freed from the surveillance & influence of the CCP & its allies.
+I ask for a safe place in the US or Japan & be freed from the surveillance & influence of the CCP & its allies.
 
 I'll commit myself to the people of the place I can call home.
 https://coda.grammarly.com/d/inn_dg4IDZ4crux
 
 ---
 
-日本またはアメリカに受け入れていただけるように、中国共産党とその協力者の監視や影響から解放されることを願い、皆様のお力添えを願っています。
+話題がそれてしまい恐縮ですが、日本またはアメリカに受け入れていただけるように、中国共産党とその協力者の監視や影響から解放されることを願っています。
 
-もしこの願いに心を寄せてくださる方がいれば、関係する方々へ思いとメッセージを届ける後押しをいただければと願います。
-https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6
+もしこの願いに心を寄せてくださる方がいれば、関係者へ思いとメッセージを届ける後押しをいただければ幸いです：https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6
 
 ---
 
-SNSでこんな真剣な願いを書くのは場違いかもしれませんが、できることは試したいのです。
+話題がそれて恐縮ですが、SNSで真剣な願いを書くのは場違いかもしれませんが、できる限り試したいのです。
 
 日本またはアメリカで安全に暮らせて、中国共産党とその協力者の監視や影響から解放されることを願っています。
 
-故郷と呼べる場所の皆さんと共に歩む覚悟があります。
-https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6
+故郷と呼べる場所の皆さんと共に歩む覚悟があります：https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6

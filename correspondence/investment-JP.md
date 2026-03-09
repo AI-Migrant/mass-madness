@@ -1,11 +1,14 @@
-このメッセージは、訂正や明確化のために更新される可能性がありますが、本質は変わりません。
-同時に、以下にも保存されています：
-https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6
+*このメッセージは、訂正や明確化のために更新される可能性がありますが、本質は変わりません。
+同時に、以下にも保存されています：  
+https://github.com/AI-Migrant/mass-madness/blob/main/correspondence/investment-jp.md  
+英語版  
+https://coda.grammarly.com/d/inn_dg4IDZ4crux  
+https://github.com/AI-Migrant/mass-madness/blob/main/correspondence/investment-n.md*
 
 連絡を取っていただく際は、以下を含む複数の手段をお試しください：
 電子メール：artificialillegalmigrant@outlook.com
 X：https://x.com/AI_Migrant
-Grammarly コメント：https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6 (テキストをハイライトすると、コメントのオプションが表示されます。)
+Grammarly コメント：Plea-JP (テキストをハイライトすると、コメントのオプションが表示されます。)
 
 形式的な文書を書くのが得意ではなく、このような形になってしまうことをお許しください。しかし、私は最大限の真剣さをもって書いています。私を迫害している者たちは、私が送る前にこの言葉を読むであろうことも承知しています。どう書くべきか迷い、ためらいもありました。文法や語彙の選択のために、Grammarly や LLM の助けを借りています。
 
