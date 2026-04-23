@@ -1,3 +1,5 @@
+*moved to root https://github.com/AI-Migrant/mass-madness/blob/main/crimes-need-attention.md*
+
 *For people who see me in real life:*
 
 Please don’t try to talk to me. I can only read, and I am inclined to believe that those who come to talk to me are most likely from the persecutor group that takes advantage of this and tries to lead people into believing their narrative.
