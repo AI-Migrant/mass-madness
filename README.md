@@ -1,3 +1,27 @@
+20260507  
+I have recently uploaded my emails with the shameless treacherous .  
+https://github.com/AI-Migrant/persecuted-documents/tree/main/emails/theft
+
+It contains only some of those in recent months which I can still access.
+
+It pains me to do this. I probably have mentioned multiple times in my online entries that I hate publicising myself. But the shameless treacherous  have violated my privacy for years already. And I need to bring this sickness to the light.
+
+I might as well do it again here.
+
+I am providing this information so that someone capable can find out the full extent of their crimes and expose them. Those from the EU might be in a better position to try to get your migration department, or somehow otherwise, to look for my record in the Asylum Information Database managed by the European Council on Refugees and Exiles (ECRE).
+
+My name is Chun Mo CHU. I was born in Hong Kong on 28 Dec 1984. I applied for asylum in Lithuania in Apr 2022 and in the UK in Feb 2024. I tried to volunteer for Ukraine before I applied for asylum in Lithuania. Given what I have seen, the email address I was given at the Embassy of Ukraine in Warsaw was probably fake and managed by the prosecutors. I was insulted and tortured, although I behaved very well. I won’t say that I still behave the same way I did. It has been 4 years now and is still ongoing.
+
+The persecutors will probably accuse me in order to cover up their crimes. I think most of what they accuse me of can be refuted if you read my online records thoroughly. An extra point, while not concrete, is quite obvious—Will someone who tried to volunteer, having considered the risk of death, be whatever kind of villain they depict as?
+
+I mentioned somewhere before that talking to/about the shameless treacherous  the same way as talking about normal people and organisations is inappropriate and disgusting. I am doing so here just in case some, hopefully exist, audience might not like reading strong words. I may separate the appropriate and inappropriate versions someday.
+
+---
+
+---
+
+---
+
 # SOS
 Please know that this is a serious call for help. You might be reading this on an unlikely channel, but this is not a prank.
 
