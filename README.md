@@ -57,7 +57,8 @@ If you want to confirm, I currently (2 Feb 2026) spend most of my time at the Pa
 Please read the repos for details.  
 https://github.com/AI-Migrant/mass-madness  
 https://github.com/AI-Migrant/asylum_diary  
-https://github.com/AI-Migrant/persecuted-media-files
+https://github.com/AI-Migrant/persecuted-media-files  
+https://github.com/AI-Migrant/persecuted-documents
 
 ---
 
