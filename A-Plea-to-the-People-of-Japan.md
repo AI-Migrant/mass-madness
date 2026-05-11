@@ -45,11 +45,8 @@ X（旧Twitter）を中心に、インターネット上で日本でも同じよ
 
 ---
 
-最後に、これも嘆願文で述べたことですが、私は自分の側の約束を完全に果たすつもりです。しかし、もし相手側が約束を守らないのであれば、私だけが一方的に縛られ続けることはできません。私は、ただ別の国に行って、同じ病理にさらされるつもりはありません。
-
----
-
-その国の病理を受け入れるために探しているわけではありません。
+最後に、これも先ほどの嘆願文で述べたことですが、私は自分の側の約束を完全に果たすつもりです。しかし、もし相手側が約束を守らないのであれば、私だけが一方的に縛られ続けることはできません。
+私は、ただ別の国に行って、そこで同じ病理を受け入れるために探しているのではありませんし、まして自分がその病理そのものになるために探しているのでもありません。
 
 ---
 
@@ -103,4 +100,4 @@ As I have written in the aforementioned plea, I don’t have much faith in anoth
 
 ---
 
-Lastly, also as mentioned in the aforementioned plea, I mean to honour my side fully, but if the other side does not, then I cannot be expected to remain bound either. I am not looking for another country just to accept and become the sickness there.
+Lastly, also mentioned in the aforementioned plea, I intend to honour my side fully, but if the other side does not, then I cannot be expected to remain bound either. I am not looking for another country just to accept the same sickness there, and definitely not to become the sickness.
