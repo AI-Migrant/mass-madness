@@ -3,19 +3,19 @@ import java.util.*;
 class YouTubeTranscriptTimestampRemover {
 	public static void main (String[] args) {
 		Scanner sc = new Scanner(System.in);
-		StringBuilder sb = new StringBuilder(100000);
- 
+		
 		while(sc.hasNext()) {
 			String s = sc.nextLine();
 			String[] words = s.split(" ");
- 
-			if (!Character.isDigit(words[0].charAt(0)) || !(words[0].contains(":") || words[1].startsWith("second") || words[1].startsWith("minute"))) {
-				sb.append(s);
-				sb.append('\n');
+
+			if (words.length() != 0 &&
+				(!Character.isDigit(words[0].charAt(0)) ||
+				(words.length == 1 && !words[0].contains(":")) ||
+				(words.length > 1 && !(words[1].startsWith("second") || words[1].startsWith("minute"))))
+			) {
+				System.out.println(s);
 			}
 		}
- 
-		System.out.println(sb.toString());
 	}
 }
 
