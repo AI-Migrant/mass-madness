@@ -1,9 +1,12 @@
 20260908  
-Since they have robbed me of my future (and continue to robbed me of my life day by day), I have started to work on information about state crimes, or more boardly things authorities and other influentials do against general civilians.
+Since they have robbed me of my future (and my health, and continue to robbed me of my life day by day, current at 52 months), I have started to work on information about state crimes, or more broadly, things authorities and other influential people do against general civilians.
 
-The information is stored in this repo's Societal Sickness, [Google Drive](https://drive.google.com/drive/folders/1R0yxYViKe39vbTXZK0bU7aF8T5bm_ddX), and [OneDrive](https://1drv.ms/f/c/129c9450dcd8e1b3/IgD0NumeYZ8dS70-Lbwz4e5CAUEO1ijI_56M6xpS5rZ1Hm0).
+The information is stored in 3 places.
+1. the Societal Sickness directory of this repo
+2. [Google Drive](https://drive.google.com/drive/folders/1R0yxYViKe39vbTXZK0bU7aF8T5bm_ddX)
+3. [OneDrive](https://1drv.ms/f/c/129c9450dcd8e1b3/IgD0NumeYZ8dS70-Lbwz4e5CAUEO1ijI_56M6xpS5rZ1Hm0).
 
-Currently OneDrive is the working directory (most update).
+OneDrive is currently the working directory (most updated).
 
 ---
 
