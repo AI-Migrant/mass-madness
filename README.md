@@ -2,7 +2,7 @@
 Since they have robbed me of my future (and my health, and continue to robbed me of my life day by day, current at 52 months), I have started to work on information about state crimes, or more broadly, things authorities and other influential people do against general civilians.
 
 The information is stored in 3 places.
-1. the Societal Sickness directory of this repo
+1. the [Societal Sickness](https://github.com/AI-Migrant/mass-madness/tree/main/Societal%20Sickness) directory of this repo
 2. [Google Drive](https://drive.google.com/drive/folders/1R0yxYViKe39vbTXZK0bU7aF8T5bm_ddX)
 3. [OneDrive](https://1drv.ms/f/c/129c9450dcd8e1b3/IgD0NumeYZ8dS70-Lbwz4e5CAUEO1ijI_56M6xpS5rZ1Hm0).
 
