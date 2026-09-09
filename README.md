@@ -1,5 +1,5 @@
 20260908  
-Since they have robbed me of my future (and my health, and continue to robbed me of my life day by day, current at 52 months), I have started to work on information about state crimes, or more broadly, things authorities and other influential people do against general civilians.
+Since they have robbed me of my future (and my health, and continue to robbed me of my life day by day, current at 52 months), there is not much I can do. I have started to work on information about state crimes, or more broadly, things authorities and other influential people do against general civilians.
 
 The information is stored in 3 places.
 1. the [Societal Sickness](https://github.com/AI-Migrant/mass-madness/tree/main/Societal%20Sickness) directory of this repo
