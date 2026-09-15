@@ -6,7 +6,7 @@ The information is stored in 3 places.
 2. [Google Drive](https://drive.google.com/drive/folders/1R0yxYViKe39vbTXZK0bU7aF8T5bm_ddX)
 3. [OneDrive](https://1drv.ms/f/c/129c9450dcd8e1b3/IgD0NumeYZ8dS70-Lbwz4e5CAUEO1ijI_56M6xpS5rZ1Hm0).
 
-OneDrive is currently the working directory (most updated).
+Google Drive is currently the working directory (most updated).
 
 ---
 
