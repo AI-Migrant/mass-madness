@@ -1,23 +1,23 @@
 *This message may be updated for correction and clarification, but the essential shouldn’t change. It is also stored at  
-https://github.com/AI-Migrant/mass-madness/blob/main/correspondence/investment-n.md  
+https://coda.grammarly.com/d/inn_dg4IDZ4crux  
 Japanese version  
 https://coda.grammarly.com/d/Plea-JP_d5Jrbrmt8A6  
 https://github.com/AI-Migrant/mass-madness/blob/main/correspondence/investment-JP.md*
 
-For contact, please try channels that include but are not limited to the following:
+For contact, please try channels that include, but are not limited to, the following:  
 Email: artificialillegalmigrant@outlook.com  
 X: https://x.com/AI_Migrant  
 Grammarly comment: inn(The comment option shows when text is highlighted.)
 
-Pardon me for not writing this in a more formal format, which I am not particularly skilled at, in any case. But I am writing this with utmost seriousness, knowing that my persecutors will read these words before they are even sent. I hesitated and was not sure about how to write this. I am writing this with the assistance of Grammarly and LLMs, mostly to correct grammar and choose the correct words.
+Pardon me for not writing this in a more formal format, which I am not particularly skilled at. But I am writing this with utmost seriousness, knowing that my persecutors will read these words before they are even uploaded. I hesitated and wasn’t sure about how to write this. I am writing this with translators, Grammarly and LLMs, mostly to correct grammar and choose the correct words.
 
-If you are an ordinary individual like me, I ask for your kind help in passing this message to the relevant officials. If you are an official from the countries I am reaching out to, I respectfully request your thoughtful consideration of my proposal and your assistance.
+If you are an ordinary individual like me, I ask for your kind help in passing this message to the relevant officials. If you are an official from the countries I am reaching out to, I respectfully request your consideration and assistance.
 
-I hope that you understand that I am very serious about the gravity and necessity of this plea. Please do not treat me with calculation, especially not in collusion with my persecutors.
+I hope you understand that I am very serious about the gravity and necessity of this plea. Please do not treat me with calculation, especially not in collusion with my persecutors.
 
-I surely am not flawless, and there will likely be aspersions cast upon me. I hope that you can take into account that my life has been deprived of normalcy for years. I have been living under the “hehehe” sickness, the namesake of which you will find when you read through the records I have written over the years. And I hope that you can pass judgments about both the persecutors and me with the wisdom of what is justifiable.
+I surely am not flawless, and there will likely be aspersions cast upon me. I hope that you can take into account that my life has been deprived of normalcy for years. I have been living amidst “hehehe” sickness, the namesake of which you will find in the records I have written over the years. I also hope you can judge both the persecutors and me with the wisdom of what is justifiable.
 
-
+---
 
 To put it simply, which probably oversimplifies things, for a quick understanding of what has happened:
 - Lithuania faked an asylum process to let the Chinese Communist Party treat me arbitrarily indefinitely. Together, they likely committed additional crimes in the process. 
@@ -28,18 +28,20 @@ What I have been suffering may not include the kind of direct physical torture p
 
 The persecutor group, which can disseminate their narratives far more easily than I can, will likely present a different story.
 
-I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the persecutors were enabled to continue the persecution since the beginning, when I applied for asylum right after not receiving a reply from a possibly fake email address I was given to contact the volunteers for Ukraine, and continues to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP. Please also keep in mind that a vast number of members of the public are helping them, effectively endorsing the sick behaviours and literal crimes. It is also possible that the public knows even about the crimes I have been hoping to have investigated by other countries or organisations. Yet, they not only continue to remain silent, but are more determined to help the persecutors blame everything on me.
+I hope that before you get some crazy ideas from the persecutor group, whose size is on a transnational level, you can keep in mind that the persecutors were enabled to continue the persecution since the beginning, when I applied for asylum right after not receiving a reply from a possibly fake email address I was given to contact the volunteers for Ukraine, and continue to this day. I tried to interpret their actions differently, but eventually concluded that the most probable explanation is that they are accomplices of the CCP. Please also keep in mind that a vast number of members of the public are helping them, effectively endorsing the sick behaviours and literal crimes. It is also possible that the public knows even about the crimes I have been hoping to have investigated by other countries or organisations. Yet, they not only continue to remain silent, but are more determined to help the persecutors blame everything on me.
 
-I wanted to write enough to let you know more about the situation, but I don’t know how much is enough if what I have written is not enough. And I am afraid that there will not be much left of me. I hope what I have written is enough to let you know I tried to offer the best, I even considered dying while volunteering to be acceptable, but they decided to and actually treated me as less than human for years. This is a basis I hope you acknowledge; I am not looking forward to suffering new persecutors.
+I wanted to write enough to ensure you know more about the situation, but I don’t know how much is enough if what I have written is not enough. And I am afraid that there will not be much left of me. I hope what I have written is enough to let you know I tried to offer the best of me. I even considered dying during volunteering to be acceptable, but they decided to and actually treated me as less than human for years. This is a basis I hope you acknowledge; I am not looking forward to suffering new persecutors.
 
 For the repository mass-madness, I hope it can serve as a summary of the persecution.  
 https://github.com/AI-Migrant/mass-madness
 
-The repository asylum_diary began as a record of the things I had strange feelings about. It became more direct about the persecution when I no longer doubted that the host countries had joined the persecutors.  
+The repository asylum_diary began as a record of things that gave me strange feelings. It became more direct about the persecution when I grew more and more certain that the host countries had joined the persecutors.  
 https://github.com/AI-Migrant/asylum_diary
 
-The repository persecuted-media-files started very late. It holds some media files related to the persecution.  
-https://github.com/AI-Migrant/persecuted-media-files
+The repositories that contain media files started very late. They hold some media files related to the persecution.  
+
+https://github.com/AI-Migrant/persecuted-documents  https://github.com/AI-Migrant/persecuted-media-files(before 20 June 2026)  
+https://github.com/AI-Migrant/persecuted-media-files-YYYYMMDD(one dedicated repo a day since 20 June 2026)
 
 Here is also a summary of what they have done:
 - They deprived me of the security to do anything, use anything and have anything. I don’t even get to receive information about myself.
@@ -47,7 +49,7 @@ Here is also a summary of what they have done:
 - They made me relive the persecution I sought to escape from for years.
 - They went out of their way to humiliate and insult me countless times.
 - They repeatedly damaged my health and caused permanent damage.
-- They drugged and molested me for years.
+- They drugged and remotely molested me for years.
 - They entertained themselves at the expense of my health, dignity and life.
 - They used me for experiments to test their substances, devices and methods.
 - They used criminal methods and power abuse to intimidate and rob me and destroy evidence, after refusing to examine my devices for possible evidence when I first applied for asylum, and further insulted me.
@@ -57,42 +59,46 @@ Here is also a summary of what they have done:
 
 I try to stay sane and relevant, but the reality is that I am being killed day by day.
 
-My main request is for an investment of help in the following areas: 1. Expose the crimes of my persecutors 2. Recover my belongings 3. Free me from their surveillance and influence 4. Enable me to reestablish my life in a safe and respectful environment.
+My main request is for an investment of help in the following areas:
+1. Expose the crimes of my persecutors
+2. Recover my belongings
+3. Free me from their surveillance and influence
+4. Enable me to reestablish my life in a safe and respectful environment.
 
 3 and 4 involve offering me a place, not to repeat what the persecutors have done, and not to help or allow them to continue in your country. I am not asking for reverence, just basic human respect and decency.
 
 I fear I cannot endure another “asylum process”. Allow me to be so bold as to ask for an arrangement where I can work for a trusted organisation in your country that will not help the persecutors, or an additional investment of trust and let me see what I can do. The latter might actually be the only way that will work. I will explain why below.
 
-To be honest, I am inclined to believe that many countries already have intelligence on such an event, one way or another. If doubts remain even after reviewing the record I have documented over the years, I will accept some kind of security measure, about which allow me to discuss only when I am in your country. Please know that I am once again placing myself at the mercy of another nation, this time, yours, and certainly hope to make it work for both of us.
+To be honest, I believe many countries already have intelligence on such an event, one way or another. If doubts remain even after reviewing the record I have documented over the years, I will accept some kind of security measure, about which please allow me to discuss only when I am in your country. Please know that I am once again placing myself at the mercy of another nation, this time, yours, and certainly hope to make it work for both of us.
 
-I would not have said the following because it sounds kind of awkward, and it seemed like things that go without saying to me. But given how treacherous this world has proven to be, I choose to spell it out this time.
+I would not have said the following because it sounds kind of awkward, and it seemed like things that go without saying to me. But given how treacherous this world has proven to be, I am spelling it out this time.
 
 *I shall pledge my allegiance to the people of the place where I can call home—the same allegiance I hold for the people of my birthplace—for we will be one people.
 
 Take me under the wing of your nation, and I shall contribute to its strength and grandeur.*
 
-I am not overestimating myself and assert that I must be able to achieve a lot. What I say is a direction. As for how much I can actually do, it depends on me, as well as on you.
+I am not overestimating myself and assert that I will achieve a lot. What I say is a direction. How much I can actually do will depend on you just as much as on me.
 
-I will also be explicit that my allegiance is not the blind support kind. It is the kind which will say, “We are wrong, let's make it right.”
+I will also be explicit that my allegiance is not the blindly-support kind. It is the kind that will say, “We are wrong, let's make it right.”
 
-Ideally, I will not differentiate between other people and my own too much. However, when difficult choices must be made, my people will be prioritised.
+Ideally, I will not differentiate between other people and my own (which will include yours) too much. However, when difficult choices must be made, my people will be prioritised.
 
 ---
 
 I want to say nice things about myself to impress you, but I think I should inform you about the non-optimal aspects as well.
 
-It is, perhaps, better for everyone for me to live as some form of productive hikikomori. I don’t say home-based worker because many characteristics of hikikomori will likely apply. I don’t think I will have no problem interacting with other people and living normally. There will be significant problems when interactions that are even slightly complicated need to take place. Although I imagine it will be necessary for me to go out every now and then to avoid becoming too out of touch.
+It is, perhaps, better for me to live as some form of productive hikikomori. I don’t say home-based worker because many characteristics of hikikomori will likely apply. I don’t think I will have no problem interacting with other people and living normally. There will be significant problems when even just slightly complicated interactions need to take place. Although I imagine it will be necessary for me to go out now and then to avoid becoming too out of touch.
 
-I am asking you to make the investment having considered all these and the fact that I have only 18 productive years left. That is to say, I think it should still be worthwhile, thanks to the fact that one doesn’t need to leave home to be productive nowadays.
-
----
-
-Although I am the one asking, I find it hard to imagine any government genuinely helping or treating me with sincerity, instead of siding with the persecutors, who are more their peers than I am—a mere individual. Since this has been brought up. I want to emphasise that when I mean to hold my end in full, if the other end is not held, I will not be bound either.
+I am asking you to invest, having considered all these and the fact that I have only 18 productive years left. That is to say, I think it should still be worthwhile, thanks to the fact that one doesn’t need to leave home to be productive nowadays.
 
 ---
 
-As mentioned, I am under total surveillance and control. I hope this message reaches you and that your response finds its way to me. If you do not receive a reply from me after sending yours, please note that I spend most of my days in libraries and my nights sleeping on the streets around Camden, London.
+Although I am the one asking, I find it hard to imagine any government genuinely helping or treating me with sincerity, instead of siding with the persecutors, who are more like their peers while I am a mere individual. Since this has been brought up. I want to emphasise that when I mean to hold my end in full, if the other end is not held, I will not be bound either.
+
+---
+
+As mentioned, I am under total surveillance and control. I hope this message reaches you and that your response will find its way to me. If you do not receive a reply from me after sending yours, please note that I spend most of my days in libraries and my nights sleeping on the streets around Camden, London. The most frequented spot when this is written is 12-48 Southampton Row, London WC1B 4AF.
 
 I hope that you will take me in when there is still something left of me.
 
-The earlier you take me in, the less I will have been degraded and the more time I will have left to rebuild my life into a worthy one, which will be the return of your investment.
+The sooner you take me in, the less I will have degraded and the more time I will have left to rebuild my life into a worthy one, which will be the return on your investment.
