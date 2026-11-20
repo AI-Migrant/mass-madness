@@ -8,7 +8,7 @@ I cannot reach any help. They not only monitor me 24/7, but also intercept commu
 My persecutors staged many things. I hoped those were simply stupidities. But after these 4.5 years of false imprisonment and all other crimes, I am afraid it’s highly likely that they really use them to twist facts and create a heinous narrative to justify the false imprisonment and other crimes.
 
 The regimes involved include, but are not limited to:
-1. The CCP (Chinese Communist Party),
+1. The CCP (Chinese Communist Party) (This probably doesn't surprise you),
 2. Lithuania (Republic of Lithuania),
 3. Latvia (Republic of Latvia) and
 4. The UK (United Kingdom of Great Britain and Northern Ireland).
@@ -41,7 +41,7 @@ Here is a short list of events that are the foundation of my false imprisonment.
 - I tried to get help from the police; they intimidated me and refused.
 - I was arbitrarily arrested, assaulted, arrested again and stolen from.
 - With the theft, they have taken the previous evidence from me along with my belongings.
-- They further subject me to Zersetzung and insult me with the new circumstances.
+- They further subject me to Zersetzung and insult me with the new circumstances after making me live on the street.
 
 As of today, the Zersetzung is still ongoing. I am isolated, discredited and framed as the problem.
 
