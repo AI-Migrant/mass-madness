@@ -3,7 +3,7 @@ I have been robbed of 55 months of my life, my health and my future.
 
 I am persuaded by these 55 months of suffering that I am a victim of human trafficking by multiple governments and, probably more horribly, a large number of civilians.
 
-I cannot reach any help. They not only monitor me 24/7, but also intercept communications, including mail. Anywhere I go, I am treated as the problem, even though they are the ones committing crimes.
+I cannot reach any help. They not only monitor me 24/7, but also intercept communications, including mail. Everywhere I go, I am treated as the problem, even though they are the ones committing crimes.
 
 My persecutors staged many things. I hoped those were simply stupidities. But after these 4.5 years of false imprisonment and all other crimes, I am afraid it’s highly likely that they really use them to twist facts and create a heinous narrative to justify the false imprisonment and other crimes.
 
