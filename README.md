@@ -1,10 +1,172 @@
-20260908  
-Since they have robbed me of my future (and my health, and continue to robbed me of my life day by day, current at 52 months), there is not much I can do. I have started to work on information about state crimes, or more broadly, things authorities and other influential people do against general civilians.
+20261119  
+I have been robbed of 55 months of my life, my health and my future.
+
+I am persuaded by these 55 months of suffering that I am a victim of human trafficking by multiple governments and, probably more horribly, a large number of civilians.
+
+I cannot reach any help. They not only monitor me 24/7, but also intercept communications, including mail. Anywhere I go, I am treated as the problem, even though they are the ones committing crimes.
+
+My persecutors staged many things. I hoped those were simply stupidities. But after these 4.5 years of false imprisonment and all other crimes, I am afraid it’s highly likely that they really use them to twist facts and create a heinous narrative to justify the false imprisonment and other crimes.
+
+The regimes involved include, but are not limited to:
+1. The CCP (Chinese Communist Party),
+2. Lithuania (Republic of Lithuania),
+3. Latvia (Republic of Latvia) and
+4. The UK (United Kingdom of Great Britain and Northern Ireland).
+
+Aside from modernised **Zersetzung** being the major part of the crimes, aspects of my persecution eerily resemble those of **Spycops** and **human trafficking**. So, check these crimes if you don’t know what they are:
+- [ ] Zersetzung
+- [ ] Spycops
+- [ ] Human Trafficking
+
+Here is a short list of events that are the foundation of my false imprisonment. These crimes are not necessarily the most serious ones they have committed. Besides, I believe they have committed more crimes than in all my records combined and more than I know of.
+
+#### Hong Kong
+- I sensed danger and left Hong Kong in 2022.
+
+#### Poland
+- I sent an email to the address I received from the Embassy of Ukraine in Warsaw to volunteer for Ukraine.
+- Feeling followed, I left Poland and applied for asylum in Lithuania.
+
+#### Lithuania
+- They didn’t provide information about progress and even prevented me from getting any. , even the directly damaging ones,
+- The result they gave me after 1.5 years of insults and harm was not just an unsuccessful claim for asylum; it was a narrative I found unacceptable.
+- I left about 2 years after my application when I found that even the legal process was fake.
+
+#### Latvia
+- I  was detained and robbed at Riga International Airport, leaving no option but to stop in the UK.
+
+#### UK
+- There are quite a few things I tried. Most notably, I tried to establish a safe communication channel with the home office. They refused.
+- They resumed the persecution continued by Lithuania, including the health damage.
+- I tried to get help from the police; they intimidated me and refused.
+- I was arbitrarily arrested, assaulted, arrested again and stolen from.
+- With the theft, they have taken the previous evidence from me along with my belongings.
+- They further subject me to Zersetzung and insult me with the new circumstances.
+
+As of today, the Zersetzung is still ongoing. I am isolated, discredited and framed as the problem.
+
+Every day, I live in agony, knowing that my future is already destroyed and that I am still being killed day by day under this false imprisonment with Zersetzung.
+
+---
+
+---
+
+---
+
+20260908
+Since they have robbed me of my future (and my health, and continue to rob me of my life day by day, currently at 52 months), there is not much I can do. I have started working on information about state crimes, or more broadly, things authorities and other influential people do against civilians.
 
 The information is stored in 3 places.
 1. the [Societal Sickness](https://github.com/AI-Migrant/mass-madness/tree/main/Societal%20Sickness) directory of this repo
 2. [Google Drive](https://drive.google.com/drive/folders/1R0yxYViKe39vbTXZK0bU7aF8T5bm_ddX)
 3. [OneDrive](https://1drv.ms/f/c/129c9450dcd8e1b3/IgD0NumeYZ8dS70-Lbwz4e5CAUEO1ijI_56M6xpS5rZ1Hm0).
+
+
+Google Drive is currently the working directory (most up-to-date).
+
+---
+
+---
+
+---
+
+20260507
+I have recently uploaded my emails with the shameless treacherous .
+https://github.com/AI-Migrant/persecuted-documents/tree/main/emails/theft
+
+It contains only some of those from recent months which I can still access.
+
+It pains me to do this. I probably have mentioned multiple times in my online entries that I hate publicising myself. But the shameless treacherous  have violated my privacy for years already. And I need to bring this sickness to light.
+
+I might as well do it again here.
+
+I am providing this information so someone capable can find out the full extent of their crimes and expose them. Those from the EU might be in a better position to try to get your migration department, or somehow otherwise, to look for my record in the Asylum Information Database managed by the European Council on Refugees and Exiles (ECRE).
+
+My name is Chun Mo CHU. I was born in Hong Kong on 28 Dec 1984. I applied for asylum in Lithuania in Apr 2022 and in the UK in Feb 2024. I tried to volunteer for Ukraine before I applied for asylum in Lithuania. Given what I have seen, the email address I was given at the Embassy of Ukraine in Warsaw was probably fake and managed by the prosecutors. I was insulted and tortured, although I behaved very well. I won’t say that I still behave the same way I did. It has been 4 years now and is still ongoing.
+
+The persecutors will probably accuse me in order to cover up their crimes. I think most of what they accuse me of can be refuted if you read my online records thoroughly. An extra point, while not concrete, is quite obvious—Will someone who tried to volunteer, having considered the risk of death, be whatever kind of villain they depict as?
+
+I mentioned somewhere before that talking to/about the shameless treacherous  the same way as talking about normal people and organisations is inappropriate and disgusting. I am doing so here just in case some, hopefully exist, audience might not like reading strong words. I may separate the appropriate and inappropriate versions someday.
+
+# SOS
+
+Please know that this is a serious call for help. You might be reading this on an unlikely channel, but this is not a prank.
+
+For the entries of the persecution I am suffering, please read at https://github.com/AI-Migrant/asylum_diary.
+
+The governments of the host countries are helping the persecutors:
+
+1. I am under extreme surveillance constantly.
+2. They have damaged my health.
+3. They have been drugging and molesting me.
+4. They have been intercepting my mail and digital activities.
+5. My access to many things, including my own data, legal services, public services, and even private services such as retail, is restricted.
+6. They arranged assaults followed by an arbitrary arrest, and destroyed my phone to destroy the evidence.
+7. Even before that, they arbitrarily arrested me and searched all my belongings, including those in the supposed asylum accommodation.
+8. And then they stole all my belongings, including my other devices.
+I have essentially been falsely imprisoned since Apr 2022. While I may appear to walk freely on the street, what I can do is very limited.
+Don’t fall for their narratives, such as it being normal surveillance and waiting of asylum process, they have been going out of their way to harm me.
+
+The help I need is threefold:
+
+1. Expose their crimes
+2. Get my belongings back
+3. Rid me of their surveillance and influence
+
+Perhaps you could try to ask your government, such as the migration department, especially if you are from another EU country, to look into what happened to the asylum application of a person from Hong Kong in Lithuania around the end of Apr 2022, and in the UK in Feb 2024.
+
+But most organisations, both governmental and non-governmental, with which I have come into contact, sided with them without question.
+
+I am not sure where you can find people who can help me. It’s unlikely that Lithuania and the UK are the only two.
+
+I used other accounts before, but I can’t use them anymore because my belongings have been stolen. I’m accessing the internet using library computers, but they’re also monitored. I’m not sure if I am reaching anyone aside from the persecutors, nor am I sure it’ll reach me if you contact me.
+
+If you want to confirm, I currently (2 Feb 2026) spend most of my time at the Pancras Square Library during the day and sleep on the street around the area. I am usually in a red jacket and carrying bags with signs. However, please don’t consider that I am fine just because I can still use the library to a certain degree. After they have stolen my belongings, what I can do is further limited.
+
+Please read the repos for details.
+https://github.com/AI-Migrant/mass-madness
+https://github.com/AI-Migrant/asylum_diary
+https://github.com/AI-Migrant/persecuted-media-files
+
+---
+
+---
+
+---
+
+This is a new repo for the mass madness and crimes I have been suffering for years, intensified since I applied for asylum in Lithuania and later in the United Kingdom.
+
+The persecution I have been facing involves multiple governments, multinational corporations, NGOs, and pretty much any organisation or group, even a large portion of the public.
+
+The original entries can be found in the repo https://github.com/AI-Migrant/asylum_diary, or from the account I originally used to write them: https://github.com/locharp
+
+I do not know how humanity has fallen so low, or how I grew up so deceived that I can’t believe what is happening.
+
+To put the whole persecution under one roof, the best summary is perhaps this:
+
+**An experiment on making humans accept being treated as animals—and be grateful for it—while respecting the persecutors.**
+
+What was originally committed by one notorious regime is now joined by countries which are supposed to have a sense of human rights and dignity.
+
+---
+
+Partial account of the ongoing persecution
+
+1. I have received barely any information in the past year, and even less of it was genuine.
+2. I have been put under extreme surveillance, constant harassment, and worse, efforts of which, if put to good use, could have prevented serious crimes or boosted productivity in other sectors.
+3. My devices and networks are not only monitored but also controlled. My communication can be intercepted. The same goes for physical mail.
+4. I am treated discriminatorily, not because of race, but because I have been intentionally made a lower being. One to be manipulated, controlled, and treated arbitrarily with no consequence.
+5. I have been drugged for various effects at their whim, or for reasons that are probably criminal.
+6. I have been subjected to effects by other means, probably involving some kind of devices.
+7. They molested me indirectly using things described in the two points above.
+8. They have damaged my health several times at their whim or out of deliberate malice. I had always been weak when I was young. I spent more than 2 decades improving my health to reach a decent level. One aspect I managed to improve to better than average was my stamina. But it’s gone because they repeatedly damaged my respiratory system.
+9. There were even assaults, after which, instead of the perpetrators, I was arrested. My belongings were seized and searched. All done on nonsensical grounds.
+10. I couldn’t do anything effectively. My access to anything, including public transport, is limited.
+11. They have to insert themselves into every aspect of my life, and not for good reason. I can’t even buy something safely. An example is that they gave me a faulty bicycle when I wanted to buy one for commuting. Even claimed that the abnormal sound was caused because I “stressed it”. Imagine what could have happened if I had taken the word for it and commuted on that bicycle? I hesitated for a long time before buying one because I knew bad things would happen.
+12. It only gets worse. Recently, they even stole my belongings. I thought that no way anyone, except real criminals, could be so shameless; they probably would return them to me, although there is no telling what kind of sick purpose they took my belongings for. But no. It’s been 4 months now (since 9 Sep 2025), and they still refuse to give me back my belongings. When I contact them, they only give me meaningless replies like those they have been using on everything throughout the years of persecution.
+13. Instead of giving me back my belongings, they are arranging to have me either live on the street or get admitted to some organisations that deal with addicts or the like. For humiliation? That’s for sure. The question is what other sinister reasons there are.
+Since they have robbed me of my future (and my health, and continue to robbed me of my life day by day, current at 52 months), there is not much I can do. I have started to work on information about state crimes, or more broadly, things authorities and other influential people do against general civilians.
+
 
 Google Drive is currently the working directory (most updated).
 
@@ -62,54 +224,7 @@ The help I need is threefold:
 
 Perhaps you could try to ask your government, such as the migration department, especially if you are from another EU country, to look into what happened to the asylum application of a person from Hong Kong in Lithuania around the end of Apr 2022, and in the UK in Feb 2024.
 
-But most organisations, both governmental and non-governmental, with which I have come into contact, sided with them without question.
-
-I am not sure where you can find people who can help me. It's unlikely that Lithuania and the UK are the only two.
-
-I used other accounts before, but I can’t use them anymore because my belongings have been stolen. I’m accessing the internet using library computers, but they’re also monitored. I’m not sure if I am reaching anyone aside from the persecutors, nor am I sure it’ll reach me if you contact me.
-
-If you want to confirm, I currently (2 Feb 2026) spend most of my time at the Pancras Square Library during the day and sleep on the street around the area. I am usually in a red jacket and carrying bags with signs. However, please don’t consider that I am fine just because I can still use the library to a certain degree. After they have stolen my belongings, what I can do is further limited.
-
-Please read the repos for details.  
-https://github.com/AI-Migrant/mass-madness  
-https://github.com/AI-Migrant/asylum_diary  
-https://github.com/AI-Migrant/persecuted-media-files  
-https://github.com/AI-Migrant/persecuted-documents
-
----
-
----
-
----
-
-This is a new repo for the mass madness and crimes I have been suffering for years, intensified since I applied for asylum in Lithuania and later in the United Kingdom.
-
-The persecution I have been facing involves multiple governments, multinational corporations, NGOs, and pretty much any organisation or group, even a large portion of the public.
-
-The original entries can be found in the repo https://github.com/AI-Migrant/asylum_diary, or from the account I originally used to write them: https://github.com/locharp
-
-I do not know how humanity has fallen so low, or how I grew up so deceived that I can’t believe what is happening.
-
-To put the whole persecution under one roof, the best summary is perhaps this:
-
-## An experiment on making humans accept being treated as animals—and be grateful for it—while respecting the persecutors.
-
-What was originally committed by one notorious regime is now joined by countries which are supposed to have the sense about human rights and dignity.
-
----
-
-**Partial account of the ongoing persecution**
-
-1. I have received barely any information in the past year, and even less was genuine.
-2. I have been put under extreme surveillance, constant harassment, and worse, efforts of which, if put to good use, could have prevented serious crimes or boosted productivity in other sectors.
-3. My devices and networks are not only monitored but also controlled. My communication can be intercepted. The same goes for physical mail.
-4. I am treated discriminatorily, not because of race, but because I have been intentionally made a lower being. One to be manipulated, controlled, and treated arbitrarily with no consequence.
-5. I have been drugged for various effects on their whims, or for reasons that are probably criminal.
-6. I have been subjected to effects by other means, probably involving some kind of devices.
-7. They molested me indirectly using things described in the two points above.
-8. They have damaged my health several times on their whims or deliberate malice. I had always been weak when I was young. I spent more than 2 decades improving my health to reach a decent level. One aspect I managed to improve to better than average was my stamina. But it’s gone because they repeatedly damaged my respiratory system.
-9. There were even assaults, after which, instead of the perpetrators, I was arrested. My belongings were seized and searched. All done on nonsensical grounds.
-10. I couldn’t do anything effectively. My access to anything, including public transport, is limited.
+is limited.
 11. They have to insert themselves into every aspect of my life, and not for good reason. I can’t even buy something safely. An example is that they gave me a faulty bicycle when I wanted to buy one for commuting. Even claimed that the abnormal sound was caused because I “stressed it”. Imagine what could have happened if I had taken the word for it and commuted on that bicycle? I hesitated for a long time before buying one because I knew bad things would happen.
 12. It only gets worse. Recently, they even stole my belongings. I thought that no way anyone, except real criminals, could be so shameless; they probably would return them to me, although there is no telling what kind of sick purpose they took my belongings for. But no. It’s been 4 months now (since 9 Sep 2025), and they still refuse to give me back my belongings. When I contact them, they only give me meaningless replies like those they have been using on everything throughout the years of persecution.
 13. Instead of giving me back my belongings, they are arranging to have me either live on the street or get admitted to some organisations that deal with addicts or the like. For humiliation? That’s for sure. The question is what other sinister reasons there are.
