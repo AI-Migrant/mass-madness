@@ -1,5 +1,11 @@
-20261119  
-I have been robbed of 55 months of my life, my health and my future.
+# Current Victim of Human Trafficking 
+Other repos about my suffering:
+- https://github.com/AI-Migrant/asylum_diary
+- https://github.com/AI-Migrant/persecuted-documents
+- https://github.com/AI-Migrant/persecuted-media-files
+- https://github.com/AI-Migrant/persecuted-media-files-YYYYMMDD (one per day starting from 20260620)
+
+**I have been robbed of 55 months of my life, my health and my future.**
 
 I am persuaded by these 55 months of suffering that I am a victim of human trafficking by multiple governments and, probably more horribly, a large number of civilians.
 
